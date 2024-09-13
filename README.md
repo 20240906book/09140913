@@ -3,6 +3,8 @@ https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
 
+服務這麼好 小米
+價格十分之一 用三年 把科技推進
 
 輕鬆好看
 歷史 有趣 學習
