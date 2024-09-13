@@ -3,6 +3,17 @@ https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
 
+還想再做些甚麼
+每一個人都有存在的價值
+
+歌曲好聽
+
+歌舞廳
+
+結合
+
+
+
 旅行 遊覽車 火車 列車 飛機 上面的 歌曲
 
 去創造你的力量
