@@ -3,6 +3,8 @@ https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
 
+旅行 遊覽車 火車 列車 飛機 上面的 歌曲
+
 去創造你的力量
 感謝的力量
 分享的力量
