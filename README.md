@@ -3,6 +3,15 @@ https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
 
+顛覆創新 追求熱愛
+https://www.youtube.com/watch?v=AoehDNliwt8
+
+小米
+風口
+人才
+ 手機 車子
+ 
+
 服務這麼好 小米
 價格十分之一 用三年 把科技推進
 考慮上下游 整體來說最終考慮用戶
