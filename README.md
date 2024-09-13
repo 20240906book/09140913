@@ -1,6 +1,10 @@
 # 09140913
-
+https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
+
+에일리, 롤러코스터에서도 열창 @런닝맨 Running man (1470) 140831
+
+
 20140831期Running Man 过山车高音唱歌 高音决了
 Ailee凭借这个过山车高音版给你看圈粉无数 
 創立於： 2004 年 2 月，美國麻薩諸塞劍橋 META
