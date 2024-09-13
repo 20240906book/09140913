@@ -2,6 +2,9 @@
 https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
+工業 與消費電子
+
+電動車 風口
 
 顛覆創新 追求熱愛
 https://www.youtube.com/watch?v=AoehDNliwt8
