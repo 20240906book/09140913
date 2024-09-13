@@ -2,6 +2,18 @@
 https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
+
+去創造你的力量
+感謝的力量
+分享的力量
+
+有力量
+你才能上去聚集
+那個層次階段
+的防護罩
+
+接觸到能量
+
 Ailee
 
 Ailee
