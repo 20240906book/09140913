@@ -3,6 +3,14 @@ https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
 
+
+輕鬆好看
+歷史 有趣 學習
+
+
+簡單的多元結合
+內容 舒服 創造人們想看的
+
 還想再做些甚麼
 每一個人都有存在的價值
 
