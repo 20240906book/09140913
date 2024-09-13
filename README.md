@@ -2,6 +2,23 @@
 https://www.youtube.com/watch?v=dt-GAq_tU_A
 f
 Ailee
+Ailee
+
+Ailee
+
+Ailee
+
+Ailee
+
+Ailee
+
+Ailee
+
+一句話 一串數字 可能記住一輩子
+很久的印象
+
+連續節奏 持續
+
 
 https://www.youtube.com/watch?v=L9ro1KjkJMg
 https://www.youtube.com/watch?v=MCEcWcIww5k
